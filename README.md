@@ -1,2 +1,2 @@
 # MetaTM
-From Your FAvourite Baby Daddy!
+From Your Favourite Baby Daddy!
